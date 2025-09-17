@@ -7,3 +7,5 @@
 .
 
 *kan 7achtik b devoirat idk ngl momkin mil 9dim li jdid m3ndich fikra ama chouf ahbt lota w rkz 3la section math houma brcha ama rkz lota --(https://www.devoirat.net/maths/devoirs-maths/.
+
+![Image](https://github.com/user-attachments/assets/f25b1819-1849-4959-957b-0425fcba06d5)
